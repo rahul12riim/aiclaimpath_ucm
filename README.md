@@ -58,5 +58,5 @@ In Namecheap:
 MIT — free to use, fork, and contribute.
 
 ## Creator
-Rahul Raj · Senior Principal TPM,   
-
+Rahul Raj · Senior Principal TPM, Walmart Global Tech  
+USPTO Patent #63/802574 · White House Appreciation 2025
